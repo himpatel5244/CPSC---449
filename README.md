@@ -3,7 +3,7 @@
 Group Members:
 Him Patel          E-mail: Himpatel5244@csu.fullerton.edu   CWID 885185546
 
-Pranav Panseriya       E-mail: pranavu29@gmail.com          CWID:
+Pranav Panseriya       E-mail: pansheriyap19@gmail.com          CWID: 885187419 
 
 
 
